@@ -1,5 +1,4 @@
-# [aixint5.github.io](https://hoo.be/caomeiw)
-
+# [aixint5.github.io](https://mrdazb.gitbook.io/mrdazb-docs/)
 ---
 
 ### **一、汉字词典网：您指尖上的中文智慧宝库**
